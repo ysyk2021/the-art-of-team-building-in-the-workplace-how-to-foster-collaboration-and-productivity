@@ -33,5 +33,5 @@ MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles
 17. Performance management
 18. Employee satisfaction
 19. Talent management
-20. Diversity and inclusion in the workplace.
+20. Diversity and inclusion in the workplace
 
