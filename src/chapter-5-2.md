@@ -1,5 +1,3 @@
-Finding Ways to Build Effective Teams
-======================================================================================
 
 Maximizing your team building skills is key to building effective teams that foster collaboration and productivity in the workplace. In this chapter, we will explore how to find ways to build effective teams that leverage your team building skills.
 

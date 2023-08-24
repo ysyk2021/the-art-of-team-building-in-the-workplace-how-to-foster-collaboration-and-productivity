@@ -1,5 +1,3 @@
-Fostering Accessibility and Inclusivity
-===========================================================================================
 
 In today's digital age, technology has become an essential tool for team building. By leveraging online collaboration tools and social media platforms, individuals can connect and collaborate in new and innovative ways. In this chapter, we'll explore the ways in which technology can be leveraged to foster accessibility and inclusivity within teams.
 

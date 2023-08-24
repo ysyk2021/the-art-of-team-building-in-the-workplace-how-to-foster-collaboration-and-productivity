@@ -1,5 +1,3 @@
-Utilizing Feedback and Coaching
-================================================================================
 
 Developing your team building skills is essential for fostering collaboration and productivity in the workplace. In this chapter, we will explore how to utilize feedback and coaching to improve your team building skills.
 

@@ -1,5 +1,3 @@
-Fostering a Growth Mindset
-===========================================================================
 
 Team building activities can provide huge benefits to the workplace, but some team members may resist participating in them. In this chapter, we will explore strategies for managing resistance to team building by fostering a growth mindset.
 

@@ -1,5 +1,3 @@
-Developing Empathy and Compassion Through Team Building
-======================================================================================================
 
 Effective team building goes beyond just improving productivity and collaboration, it also involves developing empathy and compassion among team members. In this chapter, we will explore the importance of empathy and compassion in team building and how to develop these qualities through team building activities.
 

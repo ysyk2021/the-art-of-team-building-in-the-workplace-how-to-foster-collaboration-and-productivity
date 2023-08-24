@@ -1,5 +1,3 @@
-Chapter 3: Developing a Team Building Mindset
-=============================================
 
 Building strong teams requires more than just tactics and strategies. It also requires developing a team building mindset that fosters collaboration, productivity, and innovation. In this chapter, we'll explore techniques for cultivating a team building mindset, including utilizing positive self-talk and visualization, setting realistic goals and objectives, and developing empathy and compassion through team building.
 

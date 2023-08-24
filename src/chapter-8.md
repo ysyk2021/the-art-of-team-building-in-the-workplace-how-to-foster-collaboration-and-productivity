@@ -1,5 +1,3 @@
-Chapter 8: Creating a Culture of Team Building
-==============================================
 
 Creating a culture of team building is essential for fostering collaboration and productivity in the workplace. In this chapter, we'll explore different ways organizations can promote a culture of team building.
 

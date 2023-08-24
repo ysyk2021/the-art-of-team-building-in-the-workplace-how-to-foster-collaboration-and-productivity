@@ -1,5 +1,3 @@
-Chapter 5: Maximizing Your Team Building Skills
-===============================================
 
 To be an effective team builder, it's important to identify opportunities for collaboration and productivity in the workplace, build effective teams, communicate effectively, and foster trust and respect. In this chapter, we'll explore each of these skills in more detail.
 

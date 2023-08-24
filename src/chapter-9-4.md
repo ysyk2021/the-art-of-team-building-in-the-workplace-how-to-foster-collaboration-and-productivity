@@ -1,5 +1,3 @@
-Avoiding Information Overload
-=================================================================================
 
 In today's workplace, technology plays a significant role in team building and collaboration. However, with the plethora of tools and information available, it's easy to become overwhelmed. In this chapter, we'll explore the benefits and challenges of leveraging technology for team building, strategies for avoiding information overload, and creating an effective digital workplace.
 

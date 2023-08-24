@@ -1,5 +1,3 @@
-Assessing Your Personal Approach to Team Building
-====================================================================================
 
 Team building is an essential part of creating a successful workplace environment. As a leader or team member, it's important to understand your personal approach to team building in order to effectively collaborate with others. In this chapter, we'll provide a self-assessment tool to help you evaluate your personal approach to team building.
 

@@ -1,5 +1,3 @@
-Recognizing How Team Building Contributes to Success
-=========================================================================================================
 
 Effective team building is a critical component of success in the workplace. In this chapter, we will explore the power of team building and how it contributes to overall success.
 

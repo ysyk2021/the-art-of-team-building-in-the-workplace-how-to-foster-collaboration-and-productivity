@@ -1,5 +1,3 @@
-Adapting to Changes in the Workplace
-================================================================================================
 
 Measuring the results of team building initiatives is essential for understanding their impact on collaboration and productivity in the workplace. In this chapter, we'll explore different ways to measure the effectiveness of team building strategies and learn from experience to adapt to changes in the workplace.
 

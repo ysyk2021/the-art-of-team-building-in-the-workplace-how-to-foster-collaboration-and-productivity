@@ -1,5 +1,3 @@
-Tracking Progress and Measuring Results
-===================================================================================================
 
 Effective team building involves a continuous process of improvement, which requires tracking progress and measuring results. In this chapter, we'll explore the importance of measuring results, how to track progress, and how to learn from experience.
 

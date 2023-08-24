@@ -1,5 +1,3 @@
-Using Technology to Enhance Your Team Building Experience
-=============================================================================================================
 
 Technology has brought great changes in the way we work, communicate, and collaborate. It has become an important tool for team building. In this chapter, we'll explore ways to use technology to enhance your team building experience.
 

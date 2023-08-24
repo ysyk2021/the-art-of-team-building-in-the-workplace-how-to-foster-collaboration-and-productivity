@@ -1,5 +1,3 @@
-Chapter 6: Developing Your Team Building Skills
-===============================================
 
 Developing team building skills is essential for fostering collaboration and productivity in the workplace. In this chapter, we'll explore the principles of effective team building, strategies for building highly collaborative and productive teams, and the importance of feedback and coaching in achieving success.
 

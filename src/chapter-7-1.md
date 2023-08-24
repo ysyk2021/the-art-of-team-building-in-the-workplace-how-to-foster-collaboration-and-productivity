@@ -1,5 +1,3 @@
-Identifying Common Sources of Resistance to Team Building
-==========================================================================================================
 
 Resistance to team building can occur for a variety of reasons. In this chapter, we will explore some of the most common sources of resistance to team building and strategies for managing them effectively.
 

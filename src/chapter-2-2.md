@@ -1,5 +1,3 @@
-Understanding the Science Behind Collaboration and Productivity
-==================================================================================================
 
 Team building is more than just a buzzword in the workplace. It's a science that can be studied and mastered to improve collaboration and productivity. In this chapter, we'll define team building and explore the science behind it.
 

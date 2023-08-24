@@ -1,5 +1,3 @@
-Identifying Team Building Technologies and Resources
-========================================================================================================
 
 Technology has become an important tool for team building and can greatly enhance the team building experience. However, with so many technologies and resources available, it can be challenging to identify the right ones to use. In this chapter, we'll explore ways to identify team building technologies and resources that will work best for your team.
 

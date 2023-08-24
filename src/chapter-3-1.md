@@ -1,5 +1,3 @@
-Techniques for Cultivating a Team Building Mindset
-=================================================================================================
 
 Developing a team building mindset is crucial for creating collaboration and productivity in the workplace. In this chapter, we will discuss techniques for cultivating a team building mindset.
 

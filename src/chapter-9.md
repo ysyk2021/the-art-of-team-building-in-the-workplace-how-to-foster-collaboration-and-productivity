@@ -1,5 +1,3 @@
-Chapter 9: Leveraging Technology for Team Building
-==================================================
 
 Technology has transformed the way we work, communicate, and collaborate. In this chapter, we'll explore ways to leverage technology for team building in the workplace.
 

@@ -1,5 +1,3 @@
-Common Misconceptions About Team Building
-==================================================================
 
 Team building is often seen as a buzzword in the workplace, leading to various misconceptions about what it really entails. In this chapter, we'll debunk some common misconceptions about team building.
 

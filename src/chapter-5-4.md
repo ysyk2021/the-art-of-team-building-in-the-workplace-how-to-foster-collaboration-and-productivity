@@ -1,5 +1,3 @@
-Fostering Trust and Respect
-============================================================================
 
 Building a successful team requires more than just assigning tasks and delegating responsibilities. It requires building trust and respect among team members. In this chapter, we'll discuss strategies for maximizing your team building skills by fostering trust and respect in the workplace.
 

@@ -1,5 +1,3 @@
-Overview of Team Building
-============================================================
 
 Team building is the process of bringing together a group of individuals with diverse skills, experience and expertise to work collaboratively towards a common goal. In today's workplace, team building has become an integral part of achieving success due to the rapidly changing business environment and the necessity for organizations to remain competitive.
 

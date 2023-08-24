@@ -1,5 +1,3 @@
-Setting Realistic Goals and Objectives
-=====================================================================================
 
 Effective team building requires a clear understanding of goals and objectives. In this chapter, we will explore the process of developing a team building mindset by setting realistic goals and objectives that align with the needs of the team and the organization.
 

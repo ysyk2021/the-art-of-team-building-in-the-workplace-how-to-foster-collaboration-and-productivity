@@ -1,5 +1,3 @@
-Understanding the Principles of Effective Team Building
-========================================================================================================
 
 Developing your team building skills is key to fostering collaboration and productivity in the workplace. In this chapter, we will discuss the principles of effective team building and how to implement them.
 

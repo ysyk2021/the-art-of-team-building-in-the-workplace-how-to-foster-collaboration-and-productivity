@@ -1,5 +1,3 @@
-Utilizing Positive Self-Talk and Visualization
-=============================================================================================
 
 Developing a team building mindset is essential for fostering collaboration and productivity in the workplace. In this chapter, we will explore how to develop a team building mindset by utilizing positive self-talk and visualization.
 

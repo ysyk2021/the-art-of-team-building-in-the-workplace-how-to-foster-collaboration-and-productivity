@@ -1,5 +1,3 @@
-Addressing Fear and Uncertainty
-================================================================================
 
 Resistance to team building can arise from fear and uncertainty in team members. In this chapter, we will explore strategies for managing resistance to team building by addressing underlying fears and uncertainties.
 

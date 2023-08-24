@@ -1,5 +1,3 @@
-Communicating Effectively
-==========================================================================
 
 Effective communication is crucial for achieving success in team building. In this chapter, we'll explore the importance of effective communication in team building and provide tips for improving your communication skills.
 

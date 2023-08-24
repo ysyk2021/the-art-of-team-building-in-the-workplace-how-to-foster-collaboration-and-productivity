@@ -1,5 +1,3 @@
-Developing Strategies for Overcoming Resistance
-================================================================================================
 
 While team building can provide numerous benefits to a workplace, some team members may resist team building activities for various reasons. In this chapter, we will explore common reasons for resistance to team building and strategies for overcoming this resistance.
 

@@ -1,5 +1,3 @@
-Identifying Opportunities for Collaboration and Productivity in the Workplace
-==============================================================================================================================
 
 Maximizing your team building skills can have a significant impact on collaboration and productivity in the workplace. In this chapter, we will explore how to identify opportunities for team building in the workplace and maximize your team building skills.
 

@@ -1,5 +1,3 @@
-Encouraging Proactive Team Building Across the Organization
-===========================================================================================================
 
 Creating a culture of team building is crucial for fostering collaboration and productivity across all levels of an organization. In this chapter, we'll explore different ways to encourage proactive team building across the entire organization.
 

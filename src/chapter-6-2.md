@@ -1,5 +1,3 @@
-Developing Strategies for Building Highly Collaborative and Productive Teams
-=============================================================================================================================
 
 Developing your team building skills involves developing strategies to build highly collaborative and productive teams. In this chapter, we will explore how to develop these strategies to maximize the potential of your team.
 

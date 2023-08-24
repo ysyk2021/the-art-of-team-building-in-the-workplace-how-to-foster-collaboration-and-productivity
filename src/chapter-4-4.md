@@ -1,5 +1,3 @@
-Addressing Limiting Beliefs
-================================================================================
 
 To fully harness the power of team building, it's essential to address any limiting beliefs that may be holding your team back. In this chapter, we will explore how to understand the power of team building and address limiting beliefs.
 

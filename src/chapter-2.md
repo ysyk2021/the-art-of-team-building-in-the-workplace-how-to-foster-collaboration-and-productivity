@@ -1,5 +1,3 @@
-Chapter 2: Defining Team Building
-=================================
 
 Team building is the process of creating a positive and engaged team culture that fosters collaboration, productivity, and innovation. In this chapter, we'll explore the importance of team building, the science behind collaboration and productivity, and how to assess your personal approach to team building.
 

@@ -1,5 +1,3 @@
-Chapter 7: Managing Resistance to Team Building
-===============================================
 
 Managing resistance to team building is essential for creating a positive and engaged team culture. In this chapter, we'll explore common sources of resistance to team building, strategies for overcoming resistance, addressing fear and uncertainty, and fostering a growth mindset.
 
