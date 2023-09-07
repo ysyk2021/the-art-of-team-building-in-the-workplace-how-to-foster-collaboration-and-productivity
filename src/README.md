@@ -8,3 +8,7 @@ Through a combination of theory and practical advice, this book will explore top
 Whether you're a new team leader or a seasoned team member looking to enhance your skills, "The Art of Team Building in the Workplace" has something to offer. By fostering collaboration and productivity, you can achieve long-term success in your organization and thrive in today's dynamic business environment.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
