@@ -1,5 +1,4 @@
-Chapter 3: The Benefits of Focusing on Team Building
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Team building is not just a fun activity or a mere formality in the workplace. It is a strategic investment that brings numerous benefits to both individuals and organizations. In this chapter, we will explore the significant advantages of focusing on team building and how it contributes to fostering collaboration and productivity.
 

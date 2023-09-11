@@ -1,5 +1,4 @@
-Chapter 16: Identifying Team Building Technologies and Resources
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's digital age, team building technologies and resources play a vital role in fostering collaboration and productivity within teams. In this chapter, we will explore various technologies and resources that can enhance team building efforts.
 

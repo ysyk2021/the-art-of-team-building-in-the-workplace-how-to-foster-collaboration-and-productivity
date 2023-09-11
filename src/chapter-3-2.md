@@ -1,5 +1,4 @@
-Chapter 12: Utilizing Positive Self-Talk and Visualization
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Utilizing positive self-talk and visualization techniques can have a significant impact on team building, collaboration, and productivity in the workplace. In this chapter, we will explore strategies to help leaders and team members harness the power of positive self-talk and visualization for personal and team success.
 

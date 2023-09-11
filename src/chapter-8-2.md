@@ -1,5 +1,4 @@
-Chapter 18: Providing Training and Professional Development Opportunities
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Providing training and professional development opportunities is vital for enhancing the skills, knowledge, and growth of team members. In this chapter, we will explore strategies to effectively offer training and development programs that foster collaboration, productivity, and personal growth within the workplace.
 

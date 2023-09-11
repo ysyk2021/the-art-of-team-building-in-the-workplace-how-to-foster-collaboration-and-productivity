@@ -1,5 +1,4 @@
-Chapter 7: Developing Strategies for Building Highly Collaborative and Productive Teams
-=======================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for building highly collaborative and productive teams in the workplace. We will discuss the importance of fostering a collaborative culture, creating a shared vision, promoting effective communication, encouraging trust and psychological safety, and leveraging diversity to maximize team productivity.
 

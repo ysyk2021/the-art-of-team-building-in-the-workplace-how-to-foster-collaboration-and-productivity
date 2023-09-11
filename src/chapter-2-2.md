@@ -1,5 +1,4 @@
-Chapter 8: Understanding the Science Behind Collaboration and Productivity
-==========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the science behind collaboration and productivity in the workplace. By understanding the underlying principles and research-based insights, individuals and organizations can optimize their team building efforts to achieve higher levels of collaboration and productivity.
 

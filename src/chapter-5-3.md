@@ -1,5 +1,4 @@
-Chapter 6: Communicating Effectively
-====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective communication is the cornerstone of successful team building and fostering collaboration and productivity in the workplace. In this chapter, we will explore various aspects of communication that contribute to a positive and efficient team environment.
 

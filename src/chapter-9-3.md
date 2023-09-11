@@ -1,5 +1,4 @@
-Chapter 14: Fostering Accessibility and Inclusivity
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Fostering accessibility and inclusivity within teams is crucial for creating a supportive and collaborative workplace environment. In this chapter, we will explore strategies to ensure that everyone feels valued, included, and empowered to contribute their best.
 

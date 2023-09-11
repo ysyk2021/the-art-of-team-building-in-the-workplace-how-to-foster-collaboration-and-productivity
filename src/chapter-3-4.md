@@ -1,5 +1,4 @@
-Chapter 7: Developing Empathy and Compassion Through Team Building
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Empathy and compassion are essential qualities for fostering a positive and supportive team environment. In this chapter, we will explore how team building activities can be used to develop empathy and compassion among team members.
 

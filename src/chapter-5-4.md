@@ -1,5 +1,4 @@
-Chapter 10: Fostering Trust and Respect
-=======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Fostering trust and respect is the foundation of building a strong and cohesive team. In this chapter, we will explore strategies to help leaders and team members cultivate an environment of trust and respect within the workplace.
 

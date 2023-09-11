@@ -1,5 +1,4 @@
-Chapter 8: Setting Realistic Goals and Objectives
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Setting realistic goals and objectives is crucial for effective team building, collaboration, and productivity in the workplace. In this chapter, we will explore strategies to help leaders and team members set goals and objectives that are attainable, meaningful, and aligned with overall organizational objectives.
 

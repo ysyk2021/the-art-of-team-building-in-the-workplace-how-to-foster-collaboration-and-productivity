@@ -1,5 +1,4 @@
-Chapter 12: Avoiding Information Overload
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's fast-paced workplace, information overload has become a common challenge that hinders collaboration and productivity within teams. In this chapter, we will explore strategies to help leaders and team members effectively manage information and avoid the pitfalls of information overload.
 

@@ -1,5 +1,4 @@
-Chapter 10: Celebrating Team Building Achievements
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Celebrating team building achievements is essential for fostering motivation, camaraderie, and a sense of accomplishment within teams. In this chapter, we will explore strategies to effectively celebrate and recognize the achievements and milestones reached through team building efforts.
 

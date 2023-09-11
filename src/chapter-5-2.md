@@ -1,5 +1,4 @@
-Chapter 5: Finding Ways to Build Effective Teams
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building effective teams is crucial for fostering collaboration and productivity in the workplace. In this chapter, we will explore various strategies and approaches to help create and nurture high-performing teams.
 

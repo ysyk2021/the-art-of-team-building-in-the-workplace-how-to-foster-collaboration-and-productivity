@@ -1,5 +1,4 @@
-Chapter 15: Encouraging Proactive Team Building Across the Organization
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Encouraging proactive team building across the organization is crucial for creating a collaborative and productive work environment. In this chapter, we will explore strategies to effectively promote and support proactive team building efforts throughout the organization.
 

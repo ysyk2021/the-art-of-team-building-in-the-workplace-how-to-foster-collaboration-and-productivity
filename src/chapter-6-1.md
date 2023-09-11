@@ -1,5 +1,4 @@
-Chapter 2: Understanding the Principles of Effective Team Building
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective team building is a strategic process that requires careful planning, implementation, and continuous evaluation. In this chapter, we will explore the key principles of effective team building and how they contribute to fostering collaboration and productivity in the workplace.
 

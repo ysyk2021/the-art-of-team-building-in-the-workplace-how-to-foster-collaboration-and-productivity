@@ -1,5 +1,4 @@
-Chapter 10: Addressing Limiting Beliefs
-=======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of addressing limiting beliefs when it comes to team building and fostering collaboration and productivity in the workplace. Limiting beliefs are negative thoughts or assumptions that can hinder personal and team growth. By identifying and challenging these beliefs, individuals can unlock their full potential and create a more positive and effective team environment.
 

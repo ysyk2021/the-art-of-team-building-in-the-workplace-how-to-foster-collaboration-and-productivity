@@ -1,5 +1,4 @@
-Chapter 14: Techniques for Cultivating a Team Building Mindset
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Cultivating a team building mindset is essential for fostering collaboration and productivity in the workplace. In this chapter, we will explore techniques to help leaders and team members develop a mindset that prioritizes teamwork, synergy, and collective success.
 

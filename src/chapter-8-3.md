@@ -1,5 +1,4 @@
-Chapter 12: Fostering Knowledge Sharing and Mentorship
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Fostering knowledge sharing and mentorship within teams is essential for promoting collaboration, continuous learning, and personal growth. In this chapter, we will explore strategies to effectively encourage knowledge sharing and establish mentorship programs within the workplace.
 

@@ -1,5 +1,4 @@
-Chapter 8: Recognizing How Team Building Contributes to Success
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significant ways in which team building contributes to overall success within the workplace. By understanding the direct impact of team building efforts, individuals and organizations can fully embrace its importance in fostering collaboration and productivity.
 

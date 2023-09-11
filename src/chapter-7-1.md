@@ -1,5 +1,4 @@
-Chapter 8: Identifying Common Sources of Resistance to Team Building
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore common sources of resistance to team building and how to address them effectively. Understanding these sources can help leaders and team members overcome barriers to collaboration and productivity in the workplace.
 

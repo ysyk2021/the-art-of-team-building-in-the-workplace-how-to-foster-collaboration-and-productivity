@@ -1,5 +1,4 @@
-Chapter 2: Overview of Team Building
-====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will provide an overview of team building and its significance in fostering collaboration and productivity within the workplace. By understanding the fundamentals of team building, individuals and organizations can lay the groundwork for successful teamwork and achieve their goals effectively.
 

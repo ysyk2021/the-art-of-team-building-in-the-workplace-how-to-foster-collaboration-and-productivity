@@ -1,5 +1,4 @@
-Chapter 10: Developing Strategies for Overcoming Resistance
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Overcoming resistance is crucial for successful team building and fostering collaboration and productivity in the workplace. In this chapter, we will explore strategies to help leaders and team members effectively address and overcome resistance within their teams.
 

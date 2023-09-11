@@ -1,5 +1,4 @@
-Chapter 18: Adapting to Changes in the Workplace
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Adapting to changes in the workplace is essential for fostering collaboration and maintaining productivity within teams. In this chapter, we will explore strategies to help leaders and team members navigate and embrace change effectively.
 

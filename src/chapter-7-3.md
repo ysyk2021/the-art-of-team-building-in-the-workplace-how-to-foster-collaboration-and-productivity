@@ -1,5 +1,4 @@
-Chapter 12: Addressing Fear and Uncertainty
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Addressing fear and uncertainty is crucial for creating a supportive and productive team environment. In this chapter, we will explore strategies to help leaders and team members effectively address and alleviate fear and uncertainty within their teams.
 
